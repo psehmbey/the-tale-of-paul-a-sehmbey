@@ -67,13 +67,17 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 ![](../../media/instagram/2028-mm-dd-paul-itics.mp4)
 *2028*  
 ![](../../media/youtube/songs/Uprising.mp3)  
+Two terms, not two consecutive terms.
 
-## 
+## My Promise To Wendy
+**  
+
+## Proof of Superman + Julia's Direction 🔝🙏
 ![](../../assets/shared/2026-01-29-shattered-boundary-final-separation.png)  
-*January 29, 2026*
-![](../../media/youtube/songs/HoldOn.mp3)  
+*January 29, 2026*  
+![](../../media/youtube/songs/Soldier.mp3)  
 
-## Without You, I Become The Villain.
+## Without You, I Become The Villain 🙁
 ![](../../media/youtube/LexLuthorSmallvilleTributeHowVillainsAreMadeMV.mp4)  
 ![](../../media/youtube/songs/Symphony.mp3)  
 
@@ -169,7 +173,7 @@ Thank you, City of New York.
 *April 11, 2025*  
 ![](../../media/youtube/songs/NoRival.mp3)  
 
-## Julia's Reminder: For Future Generations ✊ Reawakening The Protector 🛡️
+## For Future Generations ✊ Reawakening The Protector 🛡️
 ![](../../media/instagram/2025-02-09-for-future-generations-🫡-thank-you-jeremiah-slaughter-🇵🇷.mp4)
 *February 09, 2025*
 
@@ -184,7 +188,7 @@ Thank you, City of New York.
 *December 13-14, 2023*
 ![](../../media/youtube/songs/Compass.mp3)  
 
-## Julia's Final Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
+## Julia's Final/Provoked Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
 *October 17, 2023*  
 ![](../../media/youtube/songs/Faceless.mp3)  
@@ -273,7 +277,7 @@ Still holding my finger, she then touched the point of her ring finger to mine�
 
 (Julia was on my right. My left ring finger. I had already taken the flash drive or something, turned and was pulling my hand away when Julia held onto my finger).  
 
-Julia called me a tech genius, prior to which [I didn't believe I was](#reality-altering-love).  
+Julia called me a "tech genius," prior to which [I didn't believe I was](#reality-altering-love).  
 
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../media/instagram/2016-03-dd-thank-you-victoria-✝️🇮🇹.mp4)
