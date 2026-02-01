@@ -286,6 +286,8 @@ Sukhreet,
 Bruno (MHYSL),
 Andreas Mimberg (MHYSL),
 Scott (Jay MHYSL),
+Mary Lee? (Asian bitch with glasses next to Zaneb),
+Justin "Justy" (MHYSL),
 
 ### [Evergreen Valley High School](https://evergreenvalleyhigh.esuhsd.org/home)
 Ms. Rubio,
@@ -313,6 +315,7 @@ Isaiah (PE?),
 Peter Leung,
 Phill (guitar),
 Atamjit,
+Corinne (French),
 
 ## Saratoga, California, USA
 
@@ -441,6 +444,8 @@ Hannah Harter,
 Nicole Borda,
 Ida K.,
 Harry Curtis,
+Corinne Z.,
+Cody Cai,
 
 ## Boston, Massachusetts, USA
 
@@ -521,6 +526,8 @@ James (GOTO: Morgan Library),
 Hannah? (Z's roommate from Texas),
 (deep-throat),
 Dr. P.O.,
+Max (via Evan),
+Khalil (Ottawa, via Evan/Amy),
 
 ### NYU
 ![Thank you, NYU.](../../media/youtube/shorts/who-do-you-say-that-i-am.mp4)
@@ -567,7 +574,7 @@ Nikki Payne,
 Ronak Trivedi,
 Alec P. Shah,
 Amar Patel,
-(Amar's friend whose mom worked/works at Barclay's),
+Hughe,
 Lydia & Melanie,
 Jonathan Pun,
 Michelle & Christine M.,
@@ -614,6 +621,8 @@ Heather Matley,
 Polina Orekova (there may be an "h" in there),  
 Dr. John Pina, Dr. Menaker, Dr. Kevin Michael Anderson Lutley (Palo Alto, CA),  
 Amy (Cupertino, CA),  
+Codi/Cody (Evan's suitemate at Stanford),
+Theo (Evan's S.O., Stanford),
 
 ### 280 Group (now Productside)
 Rina Alexin,  

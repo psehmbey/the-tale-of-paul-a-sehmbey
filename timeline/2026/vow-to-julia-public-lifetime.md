@@ -70,15 +70,15 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 Two terms, not two consecutive terms.
 
 ## My Promise To Wendy
-**  
+*2026*  
 ![](../../media/youtube/songs/MazeOfMemories.mp3)  
 
 ## Proof of Superman + Julia's Direction 🔝🙏
-![](../../assets/shared/2026-01-29-shattered-boundary-final-separation.png)  
+![](../../assets/shared/2026-01-29-shattered-boundary.png)  
 *January 29, 2026*  
 ![](../../media/youtube/songs/Soldier.mp3)  
 
-## Without You, I Become The Villain 🙁
+### Without You, I Become The Villain 🙁
 ![](../../media/youtube/LexLuthorSmallvilleTributeHowVillainsAreMadeMV.mp4)  
 ![](../../media/youtube/songs/Symphony.mp3)  
 
