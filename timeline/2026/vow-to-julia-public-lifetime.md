@@ -83,6 +83,7 @@ Two terms, not two consecutive terms.
 ![](../../media/youtube/songs/Soldier.mp3)  
 
 ### Without You, I Become The Villain 🙁
+![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
 ![](../../media/youtube/LexLuthorSmallvilleTributeHowVillainsAreMadeMV.mp4)  
 ![](../../media/youtube/songs/Symphony.mp3)  
 
