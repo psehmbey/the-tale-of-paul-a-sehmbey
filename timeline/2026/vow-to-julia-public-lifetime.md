@@ -339,7 +339,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 *March 18, 1994*  
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
-![](../../assets/2025-07-03-he-forges-realities-chatgpt-forge-poster.png)  
+![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
 *yyyy*  
 ![](../../media/instagram/2yyy-mm-dd-grandfather-was-right.mp3)  
 
