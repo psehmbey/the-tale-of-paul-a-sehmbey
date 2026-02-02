@@ -16,8 +16,10 @@ Mohinder Sehmbey, Dadi,
 
 **Oprah Winfrey**,
 **Kevin Conroy**,
+Socrates,
 Mark Hammil,
 Robert De Niro (for Stardust, etc.),
+Harriet Tubman,
 Tech N9ne,
 Krizz Kaliko,
 DFD,
@@ -42,6 +44,7 @@ Will Arnett,
 Aaron Paul,
 Vin Diesel,
 Tom Cruise (The Last Samurai, etc.),
+George W. Bush,
 Barak "Barry" H. Obama,
 Donald J. Trump (though we gotta talk soon),
 Theodore "Teddy" Roosevelt (mostly),
@@ -532,6 +535,7 @@ Hannah? (Z's roommate from Texas),
 Dr. P.O.,
 Max (via Evan),
 Khalil (Ottawa, via Evan/Amy),
+Dhruv (Queens, NY, via Kevin Maldonado),
 
 ### NYU
 ![Thank you, NYU.](../../media/youtube/shorts/who-do-you-say-that-i-am.mp4)
@@ -714,7 +718,7 @@ Johnny,
 Calvin,
 "Black",
 E.,
-(chill construction site manager),
+Mason,
 
 ### 5113 2nd Ave.
 (torta truck),
@@ -781,15 +785,17 @@ N.H. (violent, attacked Goon for no reason),
 A.M.,
 (Mexican homie appearing ~my age who was there initially before moving up in the world),
 
-### 194
+### 194 / Fordham / Grand Concourse
 Sammy's,
 Airegin Smith & Co.,
 Norman W. Smith,
+"Trouble",
 Mo/Moe (Fordham/Grand Concourse),
 D. & Jay,
 Supreme Shine,
 Tank,
 Nikki,
+Leo (Verizon),
 
 ### Little Italy, The Bronx, New York, USA
 Beyonce Knowles (or look-alike in my neighborhood),
