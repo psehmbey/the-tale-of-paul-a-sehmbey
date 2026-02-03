@@ -80,6 +80,7 @@ Two terms, not two consecutive terms.
 
 ### Proof of Superman + Julia's Direction 🙏🔝🫡
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
+![](../../media/youtube/songs/Overcome.mp3)  
 ![](../../media/youtube/songs/Soldier.mp3)
 
 ### Without You, I Become The Villain 🙁
@@ -217,7 +218,7 @@ Thank you, Kendall. 🦋
 Thank you, Chelsea and family of Jehovah's Witnesses.
 
 ## A Plan: Hulkbuster
-![](../../media/instagram/2022-07+-dd-💫👱‍♀️💔-p1-c-✝️👿-thank-you-julia-basso-♕-and-family.mp4)
+![](../../assets/shared/sovereign-exosuit-the-hulkbuster-plan.png)  
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
 
 ## Meltdown 💔⏳🫠
@@ -234,6 +235,7 @@ Julia is portrayed here looking away from me then into the eyes of the man she k
 ## Graduation to Heartbreak 🎓💔
 ![](../../assets/portraits/2017-05-17-nyu-graduation-skipped-heartbreak-julia.png)
 *May 17, 2017*  
+![](../../media/youtube/songs/Arcade.mp3)  
 ![](../../media/youtube/songs/Sleepwalker.mp3)  
 (IRL, the heartbreak came before the end of 2016; additionally, I never picked up a graduation cap or gown, and I was out with people after the ceremony - I lived a little longer before I had to leave).  
 
@@ -260,6 +262,7 @@ Me testing whether our spark would answer my touch and how Julia would react to 
 ## Flashes of Our Future Selves: The Crosswalk — Upper East Side
 ![](../../assets/shared/2016-upper-east-side-julia-crosswalk-moment.png)
 *2016*  
+![](../../media/youtube/songs/eyes-dont-lie.mp3)  
 For a heartbeat, the city forgot its speed.
 She ran laughing into the night, fearless and alive.
 I pulled her back—not out of fear, but out of instinct—
@@ -324,8 +327,8 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 #IMustNotTellLies #LearnOrDie #JesusHatesYou
 
-## The Child of Prophecy
-![](../../media/instagram/1994-0x-xx-the-child-of-prophecy-🔮.mp4)  
+## The Child of Prophecy / The Boy Who Called The Fire
+![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
 ![](../../media/youtube/songs/GOHARD.mp3)  
 
