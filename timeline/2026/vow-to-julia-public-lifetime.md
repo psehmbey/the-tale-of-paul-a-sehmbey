@@ -53,7 +53,7 @@ Future entries may expand on how this promise continues to be lived—through pa
 
 ![A quiet moment in the NYU Suzuki Lab where a verbal promise was made between Paul and Julia, witnessed by their lab mentor.](../../assets/shared/2016-suzuki-lab-witnessed-promise.png)
 *2016*  
-![](../../media/youtube/songs/Wait.mp3)  
+![](../../media/songs/Wait.mp3)  
 In a professional setting, surrounded by women colleagues and mentors, I made a verbal commitment to Julia. I promised that wherever life carried me, the love I held would orient me back toward her. It was not a promise of ease or proximity, but of direction—spoken plainly, witnessed openly, and meant without reservation.  
 
 ---
@@ -61,12 +61,14 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 # Our Story
 
 ## Last Will and Testament
-![](../../media/instagram/last-will-and-testament.mp4)
+![](../../media/last-will-and-testament.mp4)
+
+## My Empire of Earth
 
 ## Paul-itics
-![](../../media/instagram/2028-mm-dd-paul-itics.mp4)
+![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028*  
-![](../../media/youtube/songs/Uprising.mp3)  
+![](../../media/songs/Uprising.mp3)  
 Two terms, not two consecutive terms.
 
 ## My Promised Song For Julia
@@ -76,21 +78,21 @@ Two terms, not two consecutive terms.
 
 ### My Promise To Wendy
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
-![](../../media/youtube/songs/MazeOfMemories.mp3)  
+![](../../media/songs/MazeOfMemories.mp3)  
 
 ### Proof of Superman + Julia's Direction 🙏🔝🫡
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
-![](../../media/youtube/songs/Overcome.mp3)  
-![](../../media/youtube/songs/Soldier.mp3)
+![](../../media/songs/Overcome.mp3)  
+![](../../media/songs/Soldier.mp3)
 
 ### Without You, I Become The Villain 🙁
 ![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
-![](../../media/youtube/songs/Symphony.mp3)  
+![](../../media/songs/Falling.mp3)  
 
 ## Sage Mastery / Things Left Unsaid
 ![](../../assets/portraits/2025-12-20-sage-mastery.png)
 *December 20, 2025*  
-![](../../media/youtube/songs/BeginAgainsakuraburstRemix.mp3)  
+![](../../media/songs/BeginAgainsakuraburstRemix.mp3)  
 Excerpt from a private letter written on December 20, 2025, preserved here as part of a personal archive:
 
 Dear Julia,
@@ -113,8 +115,8 @@ Paul
 ## Sage Reawakening / A small Hanukkah light
 ![](../../assets/portraits/2025-12-08-sage-reawakening-apartment.png)
 *December 08, 2025 - Initially awakened in this lifelime by 2002-03, if not already born awakened.*  
-![](../../media/youtube/songs/Innocence.mp3)  
-![](../../media/youtube/songs/IfYouDare.mp3)  
+![](../../media/songs/Innocence.mp3)  
+![](../../media/songs/IfYouDare.mp3)  
 Excerpt from a private letter written on December 8, 2025, preserved here as part of a personal archive marking a period of reflection, emotional steadiness, and quiet regard carried with care across time:
 
 Dear Julia,
@@ -137,15 +139,15 @@ With sincere appreciation,
 Paul Sehmbey
 
 ## Reality-Altering Love
-![](../../media/instagram/2025-10-27-reality-altering-love.mp4)
+![](../../media/2025-10-27-reality-altering-love.mp4)
 *October 27, 2025*  
-![](../../media/youtube/songs/InMyDreams.mp3)  
+![](../../media/songs/InMyDreams.mp3)  
 Thank you, Julia.
 
 ## Julia's Promise: 🪄❤️‍🩹
 ![](../../assets/shared/2025-10-27-heart-restored-by-julia-from-afar.png)
 *October 27, 2025*  
-![](../../media/youtube/songs/Halo.mp3)  
+![](../../media/songs/Halo.mp3)  
 It was always in the small moments—
 fingers meeting over a keyboard,
 laughter shared beneath city lights,
@@ -166,54 +168,54 @@ even the coldest parts of me remembered home.
 ## Identity Reveal 🤫
 ![](../2025/2025-09-12-identity-reveal.png)  
 *September 12, 2025*  
-![](../../media/youtube/songs/Prequel.mp3)  
+![](../../media/songs/Prequel.mp3)  
 
 ## The Prince of New York City 💍
-![](../../media/instagram/2025-04-11-the-prince-of-new-york-city-💍.mp4)
+![](../../media/2025-04-11-the-prince-of-new-york-city-💍.mp4)
 *April 11, 2025*  
-![](../../media/youtube/songs/Royalty.mp3)  
+![](../../media/songs/Royalty.mp3)  
 Thank you, City of New York.
 
 ## My Promised Demonstration of [Gratitude](./gratitude.md) ✝️
-![](../../media/instagram/2025-04-11-gratitude-🙏.mp4)
+![](../../media/2025-04-11-gratitude-🙏.mp4)
 *April 11, 2025*  
-![](../../media/youtube/songs/NoRival.mp3)  
+![](../../media/songs/NoRival.mp3)  
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
-![](../../media/instagram/2025-02-09-for-future-generations-🫡-thank-you-jeremiah-slaughter-🇵🇷.mp4)
+![](../../media/2025-02-09-for-future-generations-🫡-thank-you-jeremiah-slaughter-🇵🇷.mp4)
 *February 09, 2025*
 
 ## A Promise: Return to NYC
-![](../../media/instagram/2024-01-20-happy-to-be-here.mp4)
+![](../../media/2024-01-20-happy-to-be-here.mp4)
 *January 20, 2024*  
-![](../../media/youtube/songs/CantBeBroken.mp3)  
+![](../../media/songs/CantBeBroken.mp3)  
 #NeverLeavingNewYorkCity
 
 ## No Matter What I Will Love You Always
-![](../../media/instagram/2023-12-13-no-matter-what-i-will-love-you-always-p3-☸️🕉️.mp4)
+![](../../media/2023-12-13-no-matter-what-i-will-love-you-always-p3-☸️🕉️.mp4)
 *December 13-14, 2023*
-![](../../media/youtube/songs/Compass.mp3)  
+![](../../media/songs/Compass.mp3)  
 
 ## Julia's Final/Provoked Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
 *October 17, 2023*  
-![](../../media/youtube/songs/Faceless.mp3)  
+![](../../media/songs/Faceless.mp3)  
 Still not him.  
 #DarthJesus #PaulpatinePlagueis
 
 ## Good Advice: Trust Love
 ![](../../assets/portraits/kundalini-kendall.jpg)  
 *June 2023*  
-![](../../media/youtube/songs/OneandOnly.mp3)  
+![](../../media/songs/OneandOnly.mp3)  
 Thank you, Kendall. 🦋
 
 ## A Demonstration: Relentless Resilience
-![](../../media/instagram/2023-04-30-relentless-resilience-✝️🦇.mp4)
+![](../../media/2023-04-30-relentless-resilience-✝️🦇.mp4)
 *April 30, 2023*
-![](../../media/youtube/songs/Untouchable.mp3)  
+![](../../media/songs/Untouchable.mp3)  
 
 ## A Promise: Surrender to Humankind
-![](../../media/instagram/2023-04-18-surrender-to-mankind-✝️-thank-you-chelsea-🌹-and-family.mp4)
+![](../../media/2023-04-18-surrender-to-mankind-✝️-thank-you-chelsea-🌹-and-family.mp4)
 *April 18, 2023*  
 Thank you, Chelsea and family of Jehovah's Witnesses.
 
@@ -222,9 +224,9 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
 
 ## Meltdown 💔⏳🫠
-![](../../media/instagram/2022-07+-dd-💫👱‍♀️💔-p1-a-💔⏳🫠-thank-you-hpe.mp4)
+![](../../media/2022-07+-dd-💫👱‍♀️💔-p1-a-💔⏳🫠-thank-you-hpe.mp4)
 *2022*   
-![](../../media/youtube/songs/Meltdown.mp3)  
+![](../../media/songs/Meltdown.mp3)  
 Not him.
 
 ## Our Last Dinner Together: Veselka
@@ -235,8 +237,8 @@ Julia is portrayed here looking away from me then into the eyes of the man she k
 ## Graduation to Heartbreak 🎓💔
 ![](../../assets/portraits/2017-05-17-nyu-graduation-skipped-heartbreak-julia.png)
 *May 17, 2017*  
-![](../../media/youtube/songs/Arcade.mp3)  
-![](../../media/youtube/songs/Sleepwalker.mp3)  
+![](../../media/songs/Arcade.mp3)  
+![](../../media/songs/Sleepwalker.mp3)  
 (IRL, the heartbreak came before the end of 2016; additionally, I never picked up a graduation cap or gown, and I was out with people after the ceremony - I lived a little longer before I had to leave).  
 
 ## Second Apartment Party Goodbye Hug
@@ -256,13 +258,13 @@ Recruiting for the Suzuki Lab in Washington Square Park — when someone showed 
 ## Waking Julia — NYU Neuroscience Guest Lecture
 ![Waking Julia — a quietly reciprocated spark](../../assets/shared/2016-nyu-neuroscience-guest-lecture-spark-awakening.png)
 *2016*  
-![](../../media/youtube/songs/Collide.mp3)  
+![](../../media/songs/Collide.mp3)  
 Me testing whether our spark would answer my touch and how Julia would react to waking up to me.
 
 ## Flashes of Our Future Selves: The Crosswalk — Upper East Side
 ![](../../assets/shared/2016-upper-east-side-julia-crosswalk-moment.png)
 *2016*  
-![](../../media/youtube/songs/eyes-dont-lie.mp3)  
+![](../../media/songs/eyes-dont-lie.mp3)  
 For a heartbeat, the city forgot its speed.
 She ran laughing into the night, fearless and alive.
 I pulled her back—not out of fear, but out of instinct—
@@ -276,7 +278,7 @@ to losing someone irreplaceable.
 ## The One / The Chosen One 💍
 ![The first moment Paul Sehmbey realized he was falling in love with Julia — a shared NYU Suzuki Lab project, a passing flash drive, and a touch that sparked everything.](../../assets/shared/2016-nyu-suzuki-lab-first-touch-flash-drive-moment-naruto-style.png)
 *2016*  
-![](../../media/youtube/songs/CantHelpFallinginLove.mp3)  
+![](../../media/songs/CantHelpFallinginLove.mp3)  
 As I reached for the flash drive, my attention still half anchored to the screen, I felt Julia take hold of my finger. I turned in reflex—only to realize she was already looking directly into my eyes, smiling, fully present, as if she had been waiting for that exact moment.
 
 The surprise didn’t land once; it compounded.
@@ -288,7 +290,7 @@ Still holding my finger, she then touched the point of her ring finger to mine�
 Julia called me a "tech genius," prior to which [I didn't believe I was](#reality-altering-love).  
 
 ## A Test: Impressing Victoria (and vice-versa)
-![](../../media/instagram/2016-03-dd-thank-you-victoria-✝️🇮🇹.mp4)
+![](../../media/2016-03-dd-thank-you-victoria-✝️🇮🇹.mp4)
 *2016*  
 #ShadowCloneJutsu
 
@@ -314,12 +316,12 @@ Warmly,
 Paul Sehmbey  
 
 ## Enter: Wendy Suzuki
-![](../../media/instagram/2016-03-dd-wendy-suzuki-🙏🧠✨.mp4)
+![](../../media/2016-03-dd-wendy-suzuki-🙏🧠✨.mp4)
 *March 2016*  
 Thank you, Wendy. 🙏🧠✨
 
 ## A Demonstration: 💑 - Let the Music Play
-![](../../media/youtube/songs/LettheMusicPlay.mp3)  
+![](../../media/songs/LettheMusicPlay.mp3)  
 *2013-2015*  
 I never left you, Julia, I just hadn't met you in this lifetime yet, but that's no excuse and partially explains my symptoms at the time.  
 
@@ -330,26 +332,26 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
-![](../../media/youtube/songs/GOHARD.mp3)  
+![](../../media/songs/GOHARD.mp3)  
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
 *1999-2001-2003*  
-![](../../media/youtube/songs/DriveMySoul.mp3)  
+![](../../media/songs/DriveMySoul.mp3)  
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
-![](../../media/instagram/1994-0x-xx-behold-the-power-of-God-✡️✝️☪️.mp4)  
+![](../../media/1994-0x-xx-behold-the-power-of-God-✡️✝️☪️.mp4)  
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
 ![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
 *yyyy*  
-![](../../media/instagram/2yyy-mm-dd-grandfather-was-right.mp3)  
+![](../../media/2yyy-mm-dd-grandfather-was-right.mp3)  
 
 ---
 
 # I’d like to thank the Academy.
 
 **[Gratitude](./gratitude.md)**  
-![](../../media/youtube/soundbytes/FuturamaSantaClaus.mp3)  
+![](../../media/soundbytes/FuturamaSantaClaus.mp3)  
