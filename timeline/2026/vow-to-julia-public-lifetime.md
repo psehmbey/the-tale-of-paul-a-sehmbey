@@ -317,7 +317,7 @@ Warmly,
 Paul Sehmbey  
 
 ## Enter: Wendy Suzuki
-![](../../media/2016-03-dd-wendy-suzuki-🙏🧠✨.mp4)
+![](../../assets/portraits/)  
 *March 2016*  
 Thank you, Wendy. 🙏🧠✨
 
@@ -329,6 +329,10 @@ I never left you, Julia, I just hadn't met you in this lifetime yet, but that's 
 No revisionism: This was society's operational failure. If this has not made enough of a lasting impression, I am happy to narrow down my accusation to include the names of specific individuals and organizations.  
 
 #IMustNotTellLies #LearnOrDie #JesusHatesYou
+
+## Checkmate Before The War
+![](../../assets/portraits/the-young-strategist-art-of-war.png)  
+**
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
@@ -342,6 +346,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 ## 🦇
 ![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
+**
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
