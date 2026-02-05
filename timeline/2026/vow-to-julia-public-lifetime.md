@@ -359,7 +359,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
 ![](../../media/songs/GOHARD.mp3)  
-#LegendaryWorkEthic
+#LegendaryWorkEthic #SpecialGradeSorcerer
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
