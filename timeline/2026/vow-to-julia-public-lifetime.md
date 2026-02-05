@@ -350,7 +350,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 #IMustNotTellLies #LearnOrDie #JesusHatesYou
 
-## Checkmate Before The War
+## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
 **  
 #BobbyFischer
