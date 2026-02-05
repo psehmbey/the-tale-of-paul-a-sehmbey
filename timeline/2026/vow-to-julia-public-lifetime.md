@@ -132,7 +132,7 @@ Paul
 
 ## Sage Reawakening / A small Hanukkah light
 ![](../../assets/portraits/2025-12-08-sage-reawakening-apartment.png)
-*December 08, 2025 - Initially awakened in this lifelime by 2002-03, if not already born awakened.*  
+*December 08, 2025 — Initially awakened in this lifelime by 2002-03, if not already born awakened.*  
 ![](../../media/songs/Innocence.mp3)  
 ![](../../media/songs/IfYouDare.mp3)  
 Excerpt from a private letter written on December 8, 2025, preserved here as part of a personal archive marking a period of reflection, emotional steadiness, and quiet regard carried with care across time:
@@ -162,7 +162,7 @@ Paul Sehmbey
 ![](../../media/songs/InMyDreams.mp3)  
 Thank you, Julia.
 
-## Julia's Promise: 🪄❤️‍🩹
+## Reciprocal Promises: 🪄❤️‍🩹
 ![](../../assets/shared/2025-10-27-heart-restored-by-julia-from-afar.png)
 *October 27, 2025*  
 ![](../../media/songs/Halo.mp3)  
@@ -201,8 +201,16 @@ Thank you, City of New York.
 ![](../../media/songs/NoRival.mp3)  
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
-![](../../media/2025-02-09-for-future-generations-🫡-thank-you-jeremiah-slaughter-🇵🇷.mp4)
-*February 09, 2025*
+*February 09, 2025*  
+Thank you, Jeremiah Slaughter.
+
+## Physically Assaulted: No More 🏀
+*October 3, 2024*  
+Another love gone.
+
+## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
+*July 2024 — Day One at 5113 2nd Avenue in Brooklyn*  
+Was this all part of the plan, New York?
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
@@ -332,7 +340,7 @@ I’m grateful not only for what you offered professionally, but for the human q
 
 I wish you a year filled with health, fulfillment, and moments that feel quietly right.
 
-Warmly,
+Warmly,  
 Paul Sehmbey  
 
 ## Enter: Wendy Suzuki
