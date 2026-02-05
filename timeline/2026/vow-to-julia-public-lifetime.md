@@ -202,12 +202,13 @@ Thank you, Jeremiah Slaughter.
 ## Physically Assaulted: No More 🏀
 *October 3, 2024*  
 ![](../../media/songs/CantBeBroken.mp3)  
-Another love lost.
+Another love lost.  
+#LongJohnSilver #PirateKing
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
 *July 2024 — Day One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
-Was this all part of the plan, New York?
+Word, was this all part of your plan, New York?
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
