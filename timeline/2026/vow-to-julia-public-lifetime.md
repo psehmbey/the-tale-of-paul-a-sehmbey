@@ -206,10 +206,10 @@ Thank you, Jeremiah Slaughter.
 
 ## Physically Assaulted: No More 🏀
 *October 3, 2024*  
-Another love gone.
+Another love lost.
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
-*July 2024 — Day One at 5113 2nd Avenue in Brooklyn*  
+*July 2024 — Day One at 5113 2nd Avenue in Brooklyn.*  
 Was this all part of the plan, New York?
 
 ## A Promise: Return to NYC
