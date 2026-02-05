@@ -236,7 +236,7 @@ Thank you, Kendall. 🦋
 ![](../../media/songs/Untouchable.mp3)  
 
 ## A Promise: Surrender to Humankind
-![](../../media/2023-04-18-surrender-to-mankind-✝️-thank-you-chelsea-🌹-and-family.mp4)
+![](../../assets/shared/2023-04-18-surrender-to-mankind-✝️.png)  
 *April 18, 2023*  
 Thank you, Chelsea and family of Jehovah's Witnesses.
 
