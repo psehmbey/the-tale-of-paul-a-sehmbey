@@ -62,7 +62,9 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 
 ## Last Will and Testament
 ![](../../media/last-will-and-testament.mp4)  
-*Full Name Meaning: The Immortal Defender*  
+*The Immortal Defender*  
+![](../../media/songs/ImStillStanding.mp3)  
+See date for the meaning of my full name given to me by my mother.
 
 ## My Empire of Earth
 *TBA*
@@ -70,12 +72,12 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
-*2028? 🤷*  
+*2028* 🤷  
 ![](../../media/songs/Uprising.mp3)  
 Two terms, not two consecutive terms.
 
 ## My Promised Song For Julia
-*Coming Soon.*  
+*Coming Soon*  
 
 ## January 29, 2026
 
