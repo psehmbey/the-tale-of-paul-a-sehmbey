@@ -2,7 +2,7 @@
 
 # The Tale of Paul Sehmbey
 
-A **[Love Story](timeline/2026/vow-to-julia-public-lifetime.md)**.
+A **[Love Story](timeline/2026/vow-to-julia-public-lifetime.md)** And Conscious Exploration.
 ![](../../media/songs/PocketfulofSunshine.mp3)  
 
 Note: By "Hokage," I mean "King of the Pirates," and by "King of the Pirates," I mean POTUS.
