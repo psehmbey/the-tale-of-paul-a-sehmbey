@@ -82,6 +82,7 @@ Two terms, not two consecutive terms.
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
 *Coming Soon: Formal Research Proposal*  
 ![](../../media/songs/MazeOfMemories.mp3)  
+![](../../media/songs/Infinity.mp3)  
 Dear Wendy,
 
 I hope you’ve been well.
@@ -96,7 +97,7 @@ If you’re willing to offer any perspective — personal, professional, or gene
 
 Thank you for the steadiness and integrity you’ve always modeled.
 
-Warmly,
+Warmly,  
 Paul Sehmbey
 
 ### Proof of Superman + Julia's Direction 🙏🔝🫡
