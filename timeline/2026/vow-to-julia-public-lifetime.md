@@ -69,6 +69,7 @@ See date for the meaning of my full name given to me by my mother.
 ## My Empire of Earth
 *TBA*
 ![](../../media/songs/2055.mp3)  
+![](../../media/songs/DoItMyself.mp3)  
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
