@@ -87,7 +87,6 @@ Two terms, not two consecutive terms.
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
 *Formal Research Proposal Coming Soon*  
 ![](../../media/songs/MazeOfMemories.mp3)  
-![](../../media/songs/VoisSurTonChemin.mp3)  
 Dear Wendy,
 
 I hope you’ve been well.
@@ -107,6 +106,7 @@ Paul Sehmbey
 
 ### Proof of Superman + (Julia's Direction 🙏🔝🫡 | Only A Dream)
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
+![](../../media/songs/VoisSurTonChemin.mp3)  
 ![](../../media/songs/Infinity.mp3)  
 
 ### Without You, I Become The Villain 🙁
