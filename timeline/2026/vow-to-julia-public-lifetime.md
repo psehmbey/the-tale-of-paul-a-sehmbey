@@ -71,6 +71,10 @@ See date for the meaning of my full name given to me by my mother.
 ![](../../media/songs/2055.mp3)  
 ![](../../media/songs/DoItMyself.mp3)  
 
+## Rebranding the KKK
+*TBD*  
+#DontKillMe
+
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028* 🤷  
@@ -369,6 +373,14 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 #IMustNotTellLies #LearnOrDie #JesusHatesYou
 
+## Mein Kampf
+*2010-2011*  
+TODO: Add anecdote of appreciation for SHS library.  
+
+Thank you Derek Makeever and all my SHS MAP classmates and teachers.  
+
+#Pain #ForbiddenPerspective
+
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
 **  
@@ -381,6 +393,9 @@ No revisionism: This was society's operational failure. If this has not made eno
 2008-2009 — High Magic: Theory & Practice by Frater U.:D.: shared with Sean Ellner in 9th grade.*  
 ![](../../media/songs/Demons.m4a)  
 #[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
+
+## The Holocaust Museum — An Ally ✡️
+*June 2005 — Europe Trip*  
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
