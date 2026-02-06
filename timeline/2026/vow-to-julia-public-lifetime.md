@@ -87,6 +87,7 @@ Two terms, not two consecutive terms.
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
 *Formal Research Proposal Coming Soon*  
 ![](../../media/songs/MazeOfMemories.mp3)  
+![](../../media/songs/VoisSurTonChemin.mp3)  
 Dear Wendy,
 
 I hope you’ve been well.
@@ -199,16 +200,19 @@ Thank you, City of New York.
 ![](../../media/2025-04-11-gratitude-🙏.mp4)
 *April 11, 2025*  
 ![](../../media/songs/NoRival.mp3)  
-🖕
+🖕😂🖕
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
-Thank you, Jeremiah Slaughter.
+Thank you, Jeremiah Slaughter. Stay out of trouble.
 
-## Physically Assaulted: No More 🏀
+## Physically Assaulted: No More Basketball 🏀
 *October 3, 2024*  
 ![](../../media/songs/CantBeBroken.mp3)  
-Another love lost.  
+Another love lost. 
+
+Thanks for always having my back, Donald Singleton, and thank you, Goon.  
+
 #LongJohnSilver #PirateKing
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
@@ -219,9 +223,9 @@ Word, was this all part of your plan, New York?
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
-#NeverLeavingNewYorkCity
+#NeverLeavingNewYorkCity #Home
 
-## Julia's Final/Provoked Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
+## Julia's Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥🙏😈
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
 *October 17, 2023 — ✅ Final Rejection. December 13-14, 2023 — ✅ Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
@@ -234,7 +238,7 @@ Still not him.
 *June 2023 — Quantum Leap: Session One.  
 Month 2023 — Quantum Leap: Session Two.*  
 ![](../../media/songs/OneandOnly.mp3)  
-Thank you, Kendall. 🦋
+Thank you for being part of my story, Kendall. 🦋
 
 ## A Promise: Surrender to Humankind
 ![](../../assets/shared/2023-04-18-surrender-to-mankind-✝️.png)  
@@ -248,7 +252,7 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
 
 ## Meltdown 💔⏳🫠
-![](../../media/2022-07+-dd-💫👱‍♀️💔-p1-a-💔⏳🫠-thank-you-hpe.mp4)
+![Meltdown begins.](../../assets/shared/2022-07-dd-edge-meltdown.png)  
 *2022*   
 ![](../../media/songs/Meltdown.mp3)  
 Not him.
@@ -368,7 +372,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
-2007-2009 — Communication with Lucifer at God's direction.*  
+2007-2009 — Communication with Lucifer at the direction of God and always under His protection.*  
 ![](../../media/songs/Demons.m4a)  
 #[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak]()
 
