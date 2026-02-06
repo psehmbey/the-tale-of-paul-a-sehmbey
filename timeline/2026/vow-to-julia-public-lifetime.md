@@ -75,6 +75,7 @@ See date for the meaning of my full name given to me by my mother.
 ![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028* 🤷  
 ![](../../media/songs/Uprising.mp3)  
+![](../../media/songs/Renegades.mp3)  
 Two terms, not two consecutive terms.
 
 ## My Promised Song For Julia
