@@ -223,7 +223,7 @@ Word, was this all part of your plan, New York?
 
 ## Julia's Final/Provoked Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
-*October 17, 2023 — Final Rejection. December 13-14, 2023 — Eliminate the Uchiha.*  
+*October 17, 2023 — ✅ Final Rejection. December 13-14, 2023 — ✅ Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
 ![](../../media/songs/Compass.mp3)  
 Still not him.  
@@ -231,7 +231,8 @@ Still not him.
 
 ## Good Advice: Trust Love
 ![](../../assets/portraits/kundalini-kendall.jpg)  
-*June 2023 — Quantum Leap: Session One. mm 2023 — Quantum Leap: Session Two.*  
+*June 2023 — Quantum Leap: Session One.  
+Month 2023 — Quantum Leap: Session Two.*  
 ![](../../media/songs/OneandOnly.mp3)  
 Thank you, Kendall. 🦋
 
@@ -367,8 +368,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
 2007-2009 — Communication with Lucifer at God's direction.*  
-![](../../media/songs/GOHARD.mp3)  
-![](../../media/songs/AmIAPsycho.m4a)  
+![](../../media/songs/Demons.m4a)  
 #SpecialGradeSorcerer
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
@@ -379,6 +379,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## The Boy Who Would Be 🦇 / The First Signal
 ![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
 **  
+![](../../media/songs/GOHARD.mp3)  
 Among my earliest memories, I recall the moment I began identifying as Bruce Wayne.
 
 While visiting my maternal grandparents and my great-grandmother in Dundas, Ontario, I was given my first Batman comic book.  
