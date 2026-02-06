@@ -242,7 +242,7 @@ Siri (MHYSL),
 Josh (MHYSL),
 Sumner (MHYSL),
 Amanda Lam,
-David Tan (for publicly emphasizing that I was reading Harvard's biochemistry textbooks in my spare time — and thanks mom for buying them expensive-ass books!),
+David Tan (for publicly emphasizing that I was reading Harvard's biochemistry textbooks in my spare time at 12 ans — and thanks mom for buying them expensive-ass books!),
 
 ### Challenger
 Mr. Hamilton,
