@@ -213,7 +213,7 @@ Another love lost.
 
 Thanks for always having my back, Donald Singleton, and thank you, Goon.  
 
-#LongJohnSilver #PirateKing
+#LongJohnSilver #PirateKing #PirateKings
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
@@ -230,7 +230,7 @@ Word, was this all part of your plan, New York?
 *October 17, 2023 — ✅ Final Rejection. December 13-14, 2023 — ✅ Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
 ![](../../media/songs/Compass.mp3)  
-Still not him.  
+Not him.  
 #DarthJesus #PaulpatinePlagueis
 
 ## Good Advice: Trust Love
@@ -247,9 +247,11 @@ April 30, 2023 — A Demonstration: Relentless Resilience*
 ![](../../media/songs/Untouchable.mp3)  
 Thank you, Chelsea and family of Jehovah's Witnesses.
 
-## A Plan: Hulkbuster
+## A Plan
 ![](../../assets/shared/sovereign-exosuit-the-hulkbuster-plan.png)  
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
+(IRL, not war machines, but neuroscience, psychology, and nobler applications of technology).
+#Hulkbuster
 
 ## Meltdown 💔⏳🫠
 ![Meltdown begins.](../../assets/shared/2022-07-dd-edge-meltdown.png)  
@@ -288,7 +290,7 @@ Recruiting for the Suzuki Lab in Washington Square Park — when someone showed 
 ![Waking Julia — a quietly reciprocated spark](../../assets/shared/2016-nyu-neuroscience-guest-lecture-spark-awakening.png)
 *2016*  
 ![](../../media/songs/Collide.mp3)  
-Me testing whether our spark would answer my touch and how Julia would react to waking up to me.
+Me testing whether our spark would answer my touch and how Julia would react to waking up to me. I could feel the eyes and energies of the people around us leading up to this.
 
 ## Flashes of Our Future Selves: The Crosswalk — Upper East Side
 ![](../../assets/shared/2016-upper-east-side-julia-crosswalk-moment.png)
@@ -302,7 +304,7 @@ She smiled.
 And the world kept moving, unaware of how close it came
 to losing someone irreplaceable.
 
-(We were on the corner and I pulled her back onto the sidewalk).
+(IRL, we were on the corner and I pulled her back onto the sidewalk; we were not standing in the middle of the street).
 
 ## The One / The Chosen One 💍
 ![The first moment Paul Sehmbey realized he was falling in love with Julia — a shared NYU Suzuki Lab project, a passing flash drive, and a touch that sparked everything.](../../assets/shared/2016-nyu-suzuki-lab-first-touch-flash-drive-moment-naruto-style.png)
@@ -349,6 +351,8 @@ Paul Sehmbey
 *March 2016*  
 Thank you, Wendy. 🙏🧠✨
 
+#SuzukiSensei
+
 ## A Demonstration: 💑 - Let the Music Play
 ![](../../assets/shared/2013-2015-a-demonstration-let-the-music-play.png)  
 *2013-2015*  
@@ -367,14 +371,15 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## Kurama Guardian Alignment: Protective Partnership
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
-#[NineTailsCloak]()
+#NineTailsCloak
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
-2007-2009 — Communication with Lucifer at the direction of God and always under His protection.*  
+2007-2009 — Communication with Lucifer at the direction of God and always under His protection.  
+2008-2009 — High Magic: Theory & Practice by Frater U.:D.: shared with Sean Ellner in 9th grade.*  
 ![](../../media/songs/Demons.m4a)  
-#[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak]()
+#SpecialGradeSorcerer #NineTailsCloak
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
@@ -403,11 +408,12 @@ This experience gifted me:
 - An obsession with reading and autonomy
 - A soul-seated link to Batman
 
-#LegendaryWorkEthic
+#LegendaryWorkEthic #IncorruptibleSoul
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
+#PaulThePowerful
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
 ![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
