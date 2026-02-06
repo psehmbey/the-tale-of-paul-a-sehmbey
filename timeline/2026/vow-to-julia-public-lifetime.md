@@ -236,7 +236,7 @@ Word, was this all part of your plan, New York?
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
-#NeverLeavingNewYorkCity #Home
+#NeverLeavingNewYorkCity #Home #Homeless
 
 ## Julia's Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥🙏😈
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
