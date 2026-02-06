@@ -113,6 +113,11 @@ Paul Sehmbey
 ![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
 ![](../../media/songs/FallingDown.mp3)  
 
+## Kurama Guardian Alignment: Protective Partnership
+![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
+*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
+#[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
+
 ## Sage Mastery / Things Left Unsaid
 ![](../../assets/portraits/2025-12-20-sage-mastery.png)
 *December 20, 2025*  
@@ -204,7 +209,7 @@ Thank you, City of New York.
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
-Thank you, Jeremiah Slaughter. Stay out of trouble.
+Thank you, Jeremiah Slaughter. Stay out of trouble, kid.
 
 ## Physically Assaulted: No More Basketball 🏀
 *October 3, 2024*  
@@ -367,11 +372,6 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
 **  
 #BobbyFischer #SunTzu
-
-## Kurama Guardian Alignment: Protective Partnership
-![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
-*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
-#[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
