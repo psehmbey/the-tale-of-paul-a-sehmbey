@@ -393,7 +393,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 
 ## The Child of Prophecy / The Boy Who Called The Fire 🔯
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
-*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
+*1999 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
 2007-2009 — Communication with Lucifer at the direction of God and always under His protection.  
 2008-2009 — High Magic: Theory & Practice by Frater U.:D.: shared with Sean Ellner in 9th grade.*  
 ![](../../media/songs/Demons.m4a)  
@@ -404,7 +404,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
-*1999-2001-2003*  
+*1999*  
 ![](../../media/songs/DriveMySoul.mp3)  
 
 ## The Boy Who Would Be 🦇 / The First Signal
