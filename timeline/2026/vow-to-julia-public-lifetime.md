@@ -244,7 +244,7 @@ Thanks for always having my back, Donald Singleton, and thank you, Goon.
 
 #LongJohnSilver #PirateKing #PirateKings #FSociety
 
-## Sexually Assaulted By An Active Sexual Predator: Antonio Melendez
+## The Bat-Brand of Justice
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
 ![](../../media/songs/RedNose.mp3)  
