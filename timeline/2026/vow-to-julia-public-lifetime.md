@@ -116,6 +116,18 @@ Paul Sehmbey
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
 ![](../../media/songs/VoisSurTonChemin.mp3)  
 ![](../../media/songs/Infinity.mp3)  
+- Bastila returns Revan’s mask to him deliberately and without fear.
+
+- The act is not endorsement of the Dark Side, but acknowledgment of:
+  - his full identity
+  - his past choices
+  - his agency going forward
+
+- Revan accepts the mask solemnly, understanding it as a symbol rather than a command.
+
+- The moment functions as:
+  - closure of their shared history
+  - recognition that Revan must confront the future as himself, not as a redeemed shell
 
 ### Without You, I Become The Villain 🙁
 ![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
