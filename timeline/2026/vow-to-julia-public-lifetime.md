@@ -126,8 +126,8 @@ Paul Sehmbey
 
 - Revan accepts the mask solemnly, understanding it as a symbol rather than a command.
 
-- The moment functions as:
-  - acceptance of his full self without denial
+- This moment in the context of my story functions as:
+  - acceptance of my full self
   - recognition that Revan must confront the future as himself, not as a redeemed shell
   - attainment of independent selves truly capable of standing side by side
 
