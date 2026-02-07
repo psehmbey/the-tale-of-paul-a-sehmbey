@@ -384,7 +384,7 @@ TODO: Add anecdote of appreciation for SHS library.
 
 Thank you Derek Makeever and all my SHS MAP classmates and teachers.  
 
-#Pain #ForbiddenPerspective
+#TheGiver #ForbiddenPerspective
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
