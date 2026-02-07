@@ -107,7 +107,10 @@ Mark Whalburg,
 Ice Cube/NWA,
 
 ## Businesses
-Think Coffee,
+Aziza Cafe & Lounge,
+Think Coffee, 
+Strange Music, 
+Undercover Prodigy
 
 ## Ottawa, Ontario, Canada
 
@@ -206,7 +209,7 @@ Anthony Lee/Li,
 Emily Wang,
 Uma S.,
 Alicia ☮️,
-Benny Shin,
+Benny Shin (for being a hilarious source of positive energy, especially during middle school),
 Vincent Sanchez,
 Allen Kong,
 Arjun,
@@ -226,7 +229,7 @@ Ms. Martin,
 Andrew "Andy" Xie,
 Derrick (sp) Nguyen,
 Mary Helmer,
-Jake Schafer (MHYSL),
+Jake Schaffer (MHYSL — My bad, things could have gone better with your younger brother.),
 Jerrick,
 Niema,
 Gabby,
@@ -509,7 +512,7 @@ Mike (Wentworth IT),
 Tom Levine (for Eminem & Logic),
 Lynn,
 Eva B.,
-Susie (T.?),
+Susie Nieh,
 Emily Mai,
 Emma (Cobleskill, NY),
 Heather (Cobleskill, NY),
@@ -678,6 +681,7 @@ Meghan,
 ## San Jose, California, USA
 
 ### The U.S. Marines
+Singh,
 Staff Sgt. Garcia,
 Tran,
 
@@ -719,6 +723,8 @@ Lenier Barnes,
 Jared Blaylock
 
 ## New York, New York, USA
+
+(anyone who has ever discarded a weed clip that I neutralized before enjoying responsibly to facilitate with aspects of my current work for society),
 
 ### 85 Lex.
 Angel Sanchez,
@@ -820,7 +826,6 @@ Erv./Irv.,
 ("cook"/"chef"),
 
 ### 194 / Fordham / Grand Concourse
-(anyone who has ever discarded a weed clip that I neutralized before enjoying responsibly to facilitate with aspects of my current work for society),
 Sammy's,
 Airegin Smith & Co.,
 Norman W. Smith,
