@@ -241,6 +241,8 @@ Thanks for always having my back, Donald Singleton, and thank you, Goon.
 ## Sexually Assaulted By An Active Sexual Predator: Antonio Melendez
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
+Word — was this all part of your plan, New York?
+
 My experience with **ADA Pious Ahuja** at the **Brooklyn District Attorney’s Office** was profoundly disappointing and had serious consequences for how my case was handled.
 
 Ms. Ahuja was the **Assistant District Attorney assigned to prosecute my case** after I reported being **sexually assaulted** by an individual named **Antonio Melendez**. In one of the most vulnerable moments of my life, I expected clear, accurate, protective guidance from the prosecutor responsible for my case. Instead, I walked away feeling **misled, unprotected, and harmed by how it was handled**.
@@ -259,9 +261,7 @@ Ms. Ahuja was the **Assistant District Attorney assigned to prosecute my case** 
 
 I understand that an ADA represents “the People,” not the individual victim—but even within that role, I expected a basic level of **clarity, honesty, and serious attention to the sexual nature of the assault I reported**. I did not experience that here.
 
-Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.  
-  
-Was this all part of your plan, New York?
+Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
