@@ -105,12 +105,15 @@ Russell Crowe,
 Matt Damon,
 Mark Whalburg,
 Ice Cube/NWA,
+Bob Dylan,
 
-## Businesses
+## Businesses/Companies & Organizations
 Aziza Cafe & Lounge,
 Think Coffee, 
 Strange Music, 
-Undercover Prodigy
+Undercover Prodigy,
+Scholastic,
+PBS,
 
 ## Ottawa, Ontario, Canada
 
@@ -376,7 +379,9 @@ Antara (the Rao twins),
 Annale Damabeh,
 Austin Firth,
 Michael Chen,
-Samantha Hoffman,
+Samantha Hoffman (🙏),
+Michael Zuccarino,
+Ryan Masterson,
 Roy Bisht,
 Michelle Cummings and sister,
 Roman Balogh,
